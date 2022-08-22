@@ -2,8 +2,6 @@
 title:               Ryan Donovan
 tagline:             'An ENM Blog'
 description:         'Reflections and experiences.'
-url:                 http://ryandonovanenm.github.io
-baseurl:             ''
 paginate:            5
 permalink:           pretty
 
