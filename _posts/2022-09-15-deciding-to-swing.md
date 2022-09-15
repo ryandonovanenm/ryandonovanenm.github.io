@@ -3,7 +3,6 @@ layout: post
 title:  "Deciding to Swing"
 date:   2022-09-15 8:00:00 -0800
 comments: true
-image: 
 tags: first
 ---
 
