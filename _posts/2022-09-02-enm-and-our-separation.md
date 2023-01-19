@@ -45,7 +45,7 @@ _This post was written and published January 19th, 2023, but backdated to put th
 
 * From here, I have written / plan to write about our journey in a chronological way. Some of the content is there, but I still have plenty to fill in. 
     * The next post is about how we decided to become ENM.
-* I’ve also skipped ahead, though, to share more about how our relationship ended, and that story picks up with this post. (TODO)
+* I’ve also skipped ahead, though, to share more about how our relationship ended, and that story picks up with [this post](https://ryandonovanenm.github.io/2023/01/04/our-decision-to-separate/). 
 
 
 
