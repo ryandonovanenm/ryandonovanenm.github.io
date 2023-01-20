@@ -1,6 +1,6 @@
 ---
 layout: post
-title:  "Deciding to Swing"
+title:  "Building Up to ENM"
 date:   2022-09-15 8:00:00 -0800
 comments: true
 tags: first
