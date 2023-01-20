@@ -10,6 +10,9 @@ Our decision to become "Ethically Non-Monogamous" would be a huge shock to any o
 
 Because we did make such an enormous transformation, I wanted to record and share the story of how this gradually came to be.  
 
+
+<!--excerpt-->
+
 I've divided this tale into multiple posts. This first post  is all about how I eventually arrived at a critical change in perspective that allowed me to overcome my feelings of jealousy enough to start on this adventure! 
 
 ## Kate's Sex Ed Training
