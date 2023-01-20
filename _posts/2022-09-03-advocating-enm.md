@@ -16,6 +16,8 @@ The short answer is “no, but we will offer information and support to anyone i
 
 She and I have landed in different places around ENM, so there’s a little more to say about it.
 
+<!--excerpt-->
+
 **Kate**
 
 Kate’s journey with ENM ultimately gave her access to a wonderful new relationship, and also helped us finally arrive at our separation. 
