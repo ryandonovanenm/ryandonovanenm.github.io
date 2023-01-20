@@ -8,14 +8,12 @@ tags: introduction, enm, polyamory, separation
 
 _This post was written and published January 19th, 2023, but backdated to put the posts in order._
 
-
-
-
 * I created this blog to share my experiences with “Ethical Non-Monogamy” (ENM). 
     * I want to share about the ways in which it has helped me heal and grow, 
     * the challenges and struggles I’ve faced along the way (as well as the triumphs and joys!), 
     * and even how it has interacted with my faith as a Christian, and my relationship with God.
 
+<!--excerpt-->
 
 ## Ethical Non-Monogamy
 
