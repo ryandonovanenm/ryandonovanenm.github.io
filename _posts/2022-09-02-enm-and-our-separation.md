@@ -41,6 +41,19 @@ _This post was written and published January 19th, 2023, but backdated to put th
         * This describes the convention in monogamous culture that a relationship either needs to continue making progress towards long-term commitment, or else it’s not viable and should end.
         * Instead, let relationships be what you want them to be, enjoy them for what they are, and don’t worry if they “top out” somewhere shy of marriage + mortgage + kids.
 
+## Outside Influence
+
+
+* I’ve done a little dating now in this space, and the interactions I’ve had there have helped teach me about myself and what I value in a relationship.
+* Kate now has a partner whom she has a loving relationship with.
+   * She’s always been open and honest with me about that relationship and how it’s developed.
+* I think he was a game changer–he demonstrated clearly to Kate what a relationship could look like with a much more compatible person, and she can’t go back.
+* So, did he break up our marriage? I don’t think so. I think Kate already knew that our relationship wasn’t going to survive much longer.
+    * I’ve read that it’s common for romantic relationships that need to end to drag out much longer than they should, because we cling to them.
+         * I think all he did was to help bring our relationship to a swifter, merciful end.
+* I’m happy for the two of them, and excited to see how they will help each other thrive!
+
+
 ## Next Up…
 
 * From here, I have written / plan to write about our journey in a chronological way. Some of the content is there, but I still have plenty to fill in. 
