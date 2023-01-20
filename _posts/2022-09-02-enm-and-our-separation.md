@@ -11,6 +11,9 @@ _This post was written and published January 19th, 2023, but backdated to put th
 ## Did ENM Destroy our Marriage?
 
 * This journey did lead to my wife, Kate, and I choosing to separate just recently (the beginning of 2023).
+
+<!--excerpt-->
+
 * Rather than viewing the journey as “ending in disaster”, though, I would say it brought us to a needed transition in our relationship in a healthy and conflict-free way. 
     * It helped us address our entangled identities–to recognize who we were as individuals, what we each really value and need.
     * Our entanglement made it impossible for me to conceive of not being in a relationship with Jess. 
