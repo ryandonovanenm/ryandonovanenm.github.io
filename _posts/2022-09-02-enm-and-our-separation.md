@@ -16,7 +16,7 @@ _This post was written and published January 19th, 2023, but backdated to put th
 
 * Rather than viewing the journey as “ending in disaster”, though, I would say it brought us to a needed transition in our relationship in a healthy and conflict-free way. 
     * It helped us address our entangled identities–to recognize who we were as individuals, what we each really value and need.
-    * Our entanglement made it impossible for me to conceive of not being in a relationship with Jess. 
+    * Our entanglement made it impossible for me to conceive of not being in a relationship with Kate. 
     * Up until recently, I just didn’t exist as a person without her. The death of our relationship would be the death of me.
 * It helped us come to see our incompatibilities, and how poorly our relationship was serving each of us.
 * Because of this journey, our separation has been mostly conflict-free. 
