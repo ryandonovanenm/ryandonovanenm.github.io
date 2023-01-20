@@ -60,7 +60,7 @@ I now take **Adderall** to help with my ADHD, and it’s been wonderful for impr
 However, Adderall comes with a cost: at the end of the day, I start to experience **withdrawal**, and my ADHD symptoms I think are actually _worse_ during that time than my baseline without Adderall. This makes it a harder challenge for me to be **present** in the evening with Kate and the kids, and to be **emotionally available** for her at night. 
 
 
-Part of the challenge is our differences in interests and personality–I’m a slow processor, and that makes it difficult for me to participate in the fast-moving conversation that Jess is capable of at the dinner table or in the car as a family. And when my participation doesn’t seem critical, my brain is less likely to stay present and focused.
+Part of the challenge is our differences in interests and personality–I’m a slow processor, and that makes it difficult for me to participate in the fast-moving conversation that Kate is capable of at the dinner table or in the car as a family. And when my participation doesn’t seem critical, my brain is less likely to stay present and focused.
 
 
 Our desires around **adventure** and **travel** have diverged. I’ve grown to favor trips which are shorter and easier to plan and pull off, at the expense of the “star level” of the experience. Kate likes to plan bigger adventures with nicer accommodations.
