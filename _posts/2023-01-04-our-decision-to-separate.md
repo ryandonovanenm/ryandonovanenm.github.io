@@ -14,8 +14,9 @@ Kate and I met in high school, when there were many things that we didn’t yet 
 
 As we grew up together, we stayed compatible in many ways, and I think we were very good together.  Especially early in our marriage, Kate helped me fill in many missing **relational skills** that weren’t demonstrated for me by my parents. We were also well aligned in our desires and values around domestic life, Christian **community**, children and parenting, and shared interests around TV, food, and travel.
 
+<!--excerpt-->
 
-Right before Logan was born, I was diagnosed with **depression**, and this became a significant part of my life thereafter. I’ve read the advice that, similar to how it’s critical for partners to agree on whether they want kids, it’s critical that you are **aware** of any mental illness that your partner deals with, and that you are **willing to sign up** for the challenge of supporting them. Kate never got to make that choice, but has supported me all the same for years.
+Right before our first son was born, I was diagnosed with **depression**, and this became a significant part of my life thereafter. I’ve read the advice that, similar to how it’s critical for partners to agree on whether they want kids, it’s critical that you are **aware** of any mental illness that your partner deals with, and that you are **willing to sign up** for the challenge of supporting them. Kate never got to make that choice, but has supported me all the same for years.
 
 
 For the next ~10 years of our marriage, we continued to discover things about ourselves that changed our needs and priorities. 
