@@ -1,4 +1,3 @@
-
 ---
 layout: post
 title:  "Advocating ENM"
@@ -16,6 +15,7 @@ The short answer is “no, but we will offer information and support to anyone i
 
 She and I have landed in different places around ENM, so there’s a little more to say about it.
 
+<!--excerpt-->
 
 ## Kate’s Values
 
