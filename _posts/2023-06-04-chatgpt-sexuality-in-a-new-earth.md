@@ -6,7 +6,10 @@ comments: true
 Tags: enm, polyamory, chatgpt, faith, heaven, sexual health, creativity
 ---
 
-A friend sent me this inspiring Instagram [post](https://www.instagram.com/p/CsjW6jspshn/) by [@solar_punks](https://www.instagram.com/solar_punks/), where ChatGPT describes “a world where the power structures are reversed”. In its response, ChatGPT celebrates the value of emotional intelligence, the wisdom of children, the value of the elderly, and living in harmony with our environment.  
+A friend sent me this inspiring Instagram [post](https://www.instagram.com/p/CsjW6jspshn/) by [@solar_punks](https://www.instagram.com/solar_punks/), where ChatGPT describes “a world where the power structures are reversed”. In its response, ChatGPT celebrates the value of emotional intelligence, the wisdom of children, the value of the elderly, and living in harmony with our environment. 
+
+<!--excerpt-->
+
 (It was tempting for me to get bogged down in evaluating whether all of the ideas are truly wise–but I think it’s better to just let it be inspiring!)
 
 <blockquote class="instagram-media" data-instgrm-permalink="https://www.instagram.com/p/CsjW6jspshn/?utm_source=ig_embed&amp;utm_campaign=loading" data-instgrm-version="14" style=" background:#FFF; border:0; border-radius:3px; box-shadow:0 0 1px 0 rgba(0,0,0,0.5),0 1px 10px 0 rgba(0,0,0,0.15); margin: 1px; max-width:540px; min-width:326px; padding:0; width:99.375%; width:-webkit-calc(100% - 2px); width:calc(100% - 2px);">
