@@ -61,7 +61,7 @@ A friend sent me this inspiring Instagram [post](https://www.instagram.com/p/Csj
 </blockquote>
 <script async src="//www.instagram.com/embed.js"></script>
 
-To me, these types of ideas are what’s really meant by “the kingdom of God” and Jesus’ offer of “eternal life”. Jesus wanted to guide us toward a world where goodness and love permeate the world and all of human interaction.
+To me, these are the kinds of ideas that embody the true meaning behind "the kingdom of God" and Jesus' promise of "eternal life." Jesus aspired to guide us towards a world where love and goodness permeate all aspects of human interaction.
 
 ## A New, Physical Earth
 
